@@ -1,3 +1,3 @@
 よろしくね！
 
-yorosiku
+yorosikuargawrgaw
